@@ -4,7 +4,7 @@ I'm an aspiring application developer and have no clue what to write here
 
 uhh..
 
-I like Overwatch, Yu-Gi-Oh! and some animes I suppose
+I like Overwatch (Doomfist OTP), Yu-Gi-Oh! (certified D/D/D and Dogmatika player) and some animes / mangas I suppose (romance >>>>>>>>>)
 
 Guilty Gear also ain't so bad, Brisket and Faust are fun to play
 
