@@ -8,6 +8,8 @@ I like Overwatch (Doomfist OTP), Yu-Gi-Oh! (certified D/D/D and Dogmatika player
 
 Guilty Gear also ain't so bad, Brisket and Faust are fun to play
 
+But my favorite game series is Danganronpa
+
 if you try to take away my music then behold the power of nothing cus I can't do anything about it other than cry
 
 I'd also really appreciate it if I got work
