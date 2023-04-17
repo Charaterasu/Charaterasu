@@ -4,7 +4,7 @@ I'm an aspiring application developer and have no clue what to write here
 
 uhh..
 
-I like Overwatch (Doomfist, Pharah, Lúcio, Junkrat), Yu-Gi-Oh! (certified D/D/D and Dogmatika player) and some animes / mangas I suppose
+I like Overwatch (Doomfist, Hammond, Lúcio, Junkrat), Yu-Gi-Oh! (certified Bishbalkin FTK / Runick gremlin) and some animes / mangas I suppose
 
 Guilty Gear also ain't so bad, Brisket and Faust are fun to play
 
